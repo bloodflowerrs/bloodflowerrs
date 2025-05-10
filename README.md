@@ -1,5 +1,4 @@
-![v59](https://github.com/user-attachments/assets/95d6b7b0-31ee-4671-bd6d-646f2e80e2bd)
-![v64](https://github.com/user-attachments/assets/b7f7f160-9b09-4ad9-8985-f71bb09b66f1)
+
 ![v66](https://github.com/user-attachments/assets/79b8a2a3-1c3c-4664-8b40-579c51f19361)
 ![f62](https://github.com/user-attachments/assets/fc04caa1-7acc-4e08-aa3a-546dad6f80bd)
 ![e47](https://github.com/user-attachments/assets/993d5be9-31a3-4f5e-988c-fc160bc5af6e)
