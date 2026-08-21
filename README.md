@@ -2,6 +2,6 @@
 
 <p align="center"> $\small\textcolor{=bedfdf}{\textsf{ ᨳଓ ₊˚. » art credit: @-Yuming-Li on X ⟢ .}}$
 
-<p align="center"> .˖ ✴︎ <img width="100" src="https://komarev.com/ghpvc/?username=leonsrequiem&color=223331" alt="views count">‏ ✴︎ ˖.
+<p align="center"> .˖ ✴︎ <img width="100" src="https://komarev.com/ghpvc/?username=bloodflowerrs&color=223331" alt="views count">‏ ✴︎ ˖.
 
 
